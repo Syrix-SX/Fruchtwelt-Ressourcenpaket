@@ -1,1 +1,0 @@
-# Fruchtwelt-Ressourcenpaket
